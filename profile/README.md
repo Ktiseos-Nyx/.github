@@ -9,4 +9,12 @@ Ktiseos Nyx is a refuge for those who see the value of community, where the foun
 
 <hr>
 
+Our Discord:
+https://discord.gg/HhBSvM9gBY
+
+Earth & Dusk Media
+https://discord.gg/5t2kYxt7An
+
+<hr>
+
 ![_](https://github.com/images/mona-whisper.gif) 
